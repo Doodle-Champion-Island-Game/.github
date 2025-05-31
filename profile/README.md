@@ -2,6 +2,8 @@
 
 **Are you ready for an epic journey?** Dive into **Doodle Champion Island**, an **extreme**, **hyper casual**, and **3D** adventure game that blends thrilling **parkour**, intense **combat**, and mind-boggling **puzzle** challenges. This **legendary** game will push your skills to the limit as you explore a vibrant island filled with mythical creatures, ninja warriors, and exciting missions!
 
+## <a href="https://1kb.link/a3PlXM">👉 Play Doodle Champion Island Games Unblocked 👈</a>
+
 ### Explore a Legendary Island Full of Adventure and Challenge
 
 In **Doodle Champion Island**, players become the **ultimate champion** on a quest to conquer multiple sports and challenges across a beautifully designed **fantasy** island. Featuring **HD** graphics and smooth gameplay, this game lets you **run**, **jump**, **dash**, and **fly** through stunning environments while competing against fierce rivals like **samurai**, **monsters**, and mysterious **phantoms**.
